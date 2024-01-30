@@ -1,7 +1,7 @@
 Hello Everyone,
 This is my first writing. Firstly I would like to introduce myself to everyone. My name is **Archana GS** from Bilavani.
 Today I want to talk about my experience on my motorcycle.  
-I'm person who likes to ride motorcycle, unfortunately we did not have motorcycle not even a bike at our home.  
+I'm the person who likes to ride motorcycle, unfortunately we did not have motorcycle not even a bike at our home.  
 Interesting question is how did I learnt to ride?  
  
 when I was four year old, I have moved to my grandma house. I was there till 7th grade. I remember one thing ,a milk man used to come on bike to deliver milk. 
